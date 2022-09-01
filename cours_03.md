@@ -2,13 +2,18 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+* Prénom et Nom
+* Age 
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+* Animation 3d
+* Réalitée Virtuel
+* Desingeur graphique 
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+* Desingeur graphique
+* Créateur d'application VR
+* Desingeur de graphique de jeux VR  
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
