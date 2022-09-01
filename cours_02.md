@@ -20,5 +20,5 @@ Il est, pour moi le filme le plus marquant de mon enfance.
 
 ### [Les Frères Kratt](https://www.youtube.com/watch?v=HcuPyxbfgog&list=PLjbr2-02uh0y2pbvH-Fmt-UIo8wRElRal)
 Le documentaire animal le plus facile à suivre.Les frères Kraft crée par Chris et Martin Kraft qui sont les animateur de la série [zoboomafoo](https://youtu.be/cdbiSdQH8gk)  
-Il regroupe le cartoon et la documentation en vie réel.
+Il regroupe l'animation cartoon et la documentation en vie réel.
 
