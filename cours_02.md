@@ -10,7 +10,7 @@ Avec des centaines de modeurs anisi que l'ouverture d'eprit de Bethesda ce jeux 
 Jai pris ce jeux parce que c'est l'un de mes jeux préférés pour ces mods.
 
 ### [Dragon's Dogma: Dark Arisen](https://www.youtube.com/watch?v=zpXjEvrz17g)
-Jeux de type rpg est à la fois un classique et un concept révolutionnaire grâce à son systhème de pion.
+Jeux de type rpg crée par <<Capcom>> est à la fois un classique et un concept révolutionnaire grâce à son systhème de pion.
 Malgré ses vieux graphyque, les animation son incroyablement fluides.
 D.D.D.A pour abrégé, est mon jeux rpg préféré.
 
