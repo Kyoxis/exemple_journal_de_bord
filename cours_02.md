@@ -15,7 +15,7 @@ Malgré ses vieux graphyque, les animation son incroyablement fluides.
 D.D.D.A pour abrégé, est mon jeux rpg préféré.
 
 ### [Espions en herbe 3D: Fin du jeu](https://www.youtube.com/watch?v=cc_w59HfVZE)
-Ce filme réalisé par Robert Rodriguez est un chef d'oeuvre visuel qui plonge deux adolescent, frère et soeur, emprisoné dans un jeux vidéo.
+Ce filme réalisé par Robert Rodriguez est un chef-d'oeuvre visuel qui plonge deux adolescents, frère et soeur, emprisonés dans un jeux vidéo.
 Il est, pour moi, le filme le plus marquant de mon enfance.
 
 ### [Les Frères Kratt](https://www.youtube.com/watch?v=HcuPyxbfgog&list=PLjbr2-02uh0y2pbvH-Fmt-UIo8wRElRal)
