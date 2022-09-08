@@ -1,11 +1,11 @@
 # Devoir 2
  
 ### [Warframe](https://www.youtube.com/watch?v=MsbL8lFHrZI) 
-La compagnie <digital extremes> à fait de ce jeu une oeuvre d'art en question game play ainsi que graphique.
+La compagnie (digital extremes) à fait de ce jeu une oeuvre d'art en question game play ainsi que graphique.
 Ses effets visuels ainsi que sa fluidité incoyable en fait un model de détail exemplaire.
 
 ### [Skyrim](https://www.youtube.com/watch?v=lTjRZ__-278)
-Skyrim, jeux de <Bethesda Game Studios>,fêtait son dixième aniversaire en début 2022.
+Skyrim, jeux de (Bethesda Game Studios),fêtait son dixième aniversaire en début 2022.
 Avec des centaines de modeurs anisi que l'ouverture d'eprit de Bethesda ce jeux est sans doute un des jeux les plus ouverts et les rejoué.
 Jai pris ce jeux parce que c'est l'un de mes jeux préférés pour ces mods.
 
