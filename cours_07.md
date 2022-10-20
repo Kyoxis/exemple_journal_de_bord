@@ -16,6 +16,7 @@ Qu'est-ce qui pourrait être modifié dans cette oeuvre?
 
 
 ### Analyse de l'œuvre sur Vincent Van Gogh par Oasis.
+
 L'œuvre que nous avons visitée sur le style artistique de monsieur Van Gogh fut réalisée avec un système de son ainsi qu'un système d'éclairage réparti dans un total de trois pièces. Ces trois pièces avaient un thème attitré à chacune d'entre elles. Dans la première pièce, nous pouvions observer les croquis ainsi que les diverses notes écrites par le grand artiste lui-même. Cette présentation, soutenue de dires et de commentaires jumelés à des pensées partagées par intérim d'un système audio nous entourant, nous offre une expérience de qualité, agréable et captivante qui saura captivé l'attention des curieux ou des amateurs de son art. La deuxième pièce, haute en couleur, représente la palette de Van Gogh. Cette palette de peinture à l'huile, diverse et complémentaire, fut diffusée sur les murs, le plancher et le plafond. Formant différents motifs et agglomérations de motifs servant à solliciter le regard des visiteurs. La présentation jointe à d'autres paroles et phrases réflectives offre une fenêtre dans la pensée du peintre. La pièce finale nous fait interagir avec une certaine œuvre de Van Gogh. Celles au plancher, du moins. Le défilement de paysages, de fleurs, de portraits et autres œuvres diverses, tous animés, sont présentés une dernière fois couplés à de plusieurs citations pour une finale inspirante.
 
 
