@@ -16,7 +16,7 @@ Les raisons pour mon choix de programe sont les suivantes:
 * J'aime faire des montages électroniques.
 * Je suis intrigué par la programation.
 * j'adore les animations 3D.
-j'espère passé une belle session 👍
+* J'espère passé une belle session 👍
 
 
 **Un peu d'humour:** 🤪
